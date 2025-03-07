@@ -1,11 +1,11 @@
 ---------
 
-### <br>  ❖ ALI MD V1 ❖
-🔰 **`THE WORLD BEST WHATSAPP BOT CREATED BY ALI🐍`** 🔰
+### <br>  ❖ Kiki-XMD V1 ❖
+🔰 **`created by kiki xmd bot 🐍`** 🔰
 
 ----------
 
-<a><img src='https://cdn.ironman.my.id/i/2du3i5.jpg'/></a>
+<a><img src='https://i.ibb.co/hJW2ZZf3/lordali.jpg'/></a>
 
 -------
 
